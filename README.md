@@ -1,2 +1,1 @@
-### He/Him.
-## Kuli Ketik Magang.
+## Tukang Ketik.
